@@ -1,5 +1,3 @@
-This recipe will show you how to make delicious chocolate!
-
 CHOCLATE RECIPE :
 
 1. firstly, using double boiler method, heat ½ cup coconut oil.
@@ -17,13 +15,3 @@ CHOCLATE RECIPE :
 7. tap twice and place in the refrigerator for 1 hour or until sets completely.
 
 8. finally, milk chocolate is ready to enjoy. make sure to keep in the refrigerator if you are living in warm places to avoid chocolate from melting.
-
-
-INGREDIENTS :
-
-1. coconut oil.
-2. powdered sugar
-3. cocoa powder
-4. milk powder.
-5. vanilla extract
-6. moulds
